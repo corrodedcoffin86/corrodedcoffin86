@@ -6,7 +6,7 @@
 > • *i'm not a romantic steddie shipper and neutral about it (i respect you guys dw don't be scared talking to me)*
 >
 > 
-> • *idm steve ponies doing c+h with me (on my eddie skin)*
+> • *idm steve ponies doing c+h with me (in my eddie skin)*
 >
 > 
 > • *we can talk just don't mention the ship, steddie to me*
