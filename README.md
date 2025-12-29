@@ -1,6 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=corrodedcoffin86&label=welcome+to+hellfire)
 
-![dc0cce6eba8374fd6f2f90ba171783f3](https://github.com/user-attachments/assets/0bc8f318-be33-4652-a58b-65b90c5897bf)
+![e44615a8da4d25762874cab6f678e21f](https://github.com/user-attachments/assets/2f536c68-b385-4bc3-a136-6edbf8adb4c4)
+
 
 > [!NOTE]
 > • *i'm not a romantic steddie shipper and neutral about it (i respect you guys dw don't be scared talking to me)*
