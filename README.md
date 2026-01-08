@@ -14,6 +14,8 @@
 >
 > 
 > • *platonic steddie is 100% OK*
-
+>
+> 
+> • *use tone tags when talking to me*
 
  <p align="center"> 𝄞  .𖥔 ݁ ˖
