@@ -1,6 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=corrodedcoffin86&label=welcome+to+hellfire)
 
-![1acbe1beff4caf1718603b26410fa6e9](https://github.com/user-attachments/assets/60d6bff2-510d-446e-ad76-20bd20765d82)
+![26926](https://github.com/user-attachments/assets/a3904cef-0497-4f9e-9949-f85d4ed405ab)
+
 
 
 > [!IMPORTANT]
